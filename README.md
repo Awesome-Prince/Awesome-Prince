@@ -1,6 +1,6 @@
 # LOVELY Boy
 
-LOVELY IS Boy💕
+LOVE is Very expansive in World 💝
 
 CLICK ON BELOW IMAGE TO CONTACT ME
 
