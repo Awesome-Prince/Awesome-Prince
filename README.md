@@ -8,9 +8,7 @@ CLICK ON BELOW IMAGE TO CONTACT ME
 
 Keep supporting us 💘
 
-# MY GIT STATS
 
-<img src="https://github-readme-stats.vercel.app/api?username=Hodacka&&show_icons=true&count_private=true&theme=radical"/>|<img src="https://github-readme-streak-stats.herokuapp.com/?user=Hodacka&theme=radical"/>|
 
 |---|---|
 
