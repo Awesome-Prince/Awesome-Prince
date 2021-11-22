@@ -1,4 +1,4 @@
-# <img src="https://giphy.com/gifs/cat-sleep-goodnight-xEQKSpMMvVucoYwb3X" width="50px">こんにちは！<img src="https://giphy.com/gifs/cat-keyboard-neko-rtEv35BlofiLKbavvp" width="50">
+# こんにちは！>
 
 <p>
 
