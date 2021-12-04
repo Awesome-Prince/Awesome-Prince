@@ -27,6 +27,7 @@ Keep supporting us 💘
 <!-- CURRENTLY-WORKING:START -->
 
 - [『Neko 愛』](https://t.me/NekoXRobot)
+- [Chizaru Mizuhara](https://t.me/ChizaruXRobot)
 
 
 
