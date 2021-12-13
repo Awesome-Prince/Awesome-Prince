@@ -28,6 +28,7 @@ Keep supporting us 💘
 
 - [『Neko 愛』](https://t.me/NekoXRobot)
 - [Chizaru Mizuhara](https://t.me/ChizaruXRobot)
+- [Remi](https://t.me/RemiTheRobot)
 
 
 
