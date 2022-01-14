@@ -8,15 +8,15 @@
 
  </p>
 
-# LOVELY Boy
+# LOVELY PRINCE
 
-LOVE is Very expansive in World 💝
+LOVE is Very expansive in World 💜
 
 CLICK ON BELOW IMAGE TO CONTACT ME
 
-[![Lovely Boy](https://telegra.ph/file/c5e66d03c6286d84f98e2.jpg)](https://t.me/Horimaya)
+[![Lovely Prince](https://telegra.ph/file/c5e66d03c6286d84f98e2.jpg)](https://t.me/Horimaya)
 
-Keep supporting us 💘
+Keep supporting us.
 
 
 
