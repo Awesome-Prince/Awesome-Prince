@@ -10,11 +10,11 @@
 
 # LOVELY PRINCE
 
-LOVE is Very expansive in World 💜
+Love is Very expansive in World💜
 
 CLICK ON BELOW IMAGE TO CONTACT ME
 
-[![Lovely Prince](https://telegra.ph/file/c5e66d03c6286d84f98e2.jpg)](https://t.me/Awesome-Prince)
+[![Lovely Prince](https://telegra.ph/file/555f634c5a13c2dbeb00d.jpg)](https://t.me/Awesome-Prince)
 
 Keep supporting us.
 
