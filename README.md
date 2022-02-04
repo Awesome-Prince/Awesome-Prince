@@ -10,7 +10,7 @@
 
 # LOVELY PRINCE
 
-Love is Very expansive in World💜
+Do Hard Work to Achieve Your Goal🖤.
 
 CLICK ON BELOW IMAGE TO CONTACT ME
 
@@ -26,7 +26,7 @@ Keep supporting us.
 
 <!-- CURRENTLY-WORKING:START -->
 
-➢ [『Neko Robot』](https://t.me/NekoXRobot)
+➢ [Neko Robot](https://t.me/NekoXRobot)
 
 
 
