@@ -20,7 +20,7 @@ Keep supporting us.
 
 <!-- CURRENTLY-WORKING:START -->
 
-➢ [Neko Robot](https://t.me/NekoXRobot)
+➢ [Neko X](https://t.me/NekoXRobot)
 
 
 
