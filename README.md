@@ -8,7 +8,7 @@ Do Hard Work to Achieve Your Goal🖤.
 
 CLICK ON BELOW IMAGE TO CONTACT ME
 
-[![Lovely Prince](https://telegra.ph/file/4df0c1845d8fe33a8926d.jpg)](https://t.me/Awesome-Prince)
+[![Lovely Prince](https://telegra.ph/file/920796d134a6e21aec333.jpg)](https://t.me/Awesome-Prince)
 
 Keep supporting us.
 
