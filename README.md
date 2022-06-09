@@ -9,7 +9,7 @@
 **➣ I’m Currently Learning  JavaScript, CCS And Etc**  
 **➣ I’m Looking For A Best Friend Who Helpes Me On My Work**      
 **➣ I'm Currently Concentrating My Studies, My Bot Stuffs And Etc**        
-**➣ You Can Use My Dm As Your Help Desk**  
-**➣ Contact Me At Tg :** [@DarlingPrince](telegram.me/DarlingPrince)  
+**➣ You Can Use My Inbox As Your Help Desk**  
+**➣ Contact Me :** [@DarlingPrince](DarlingPrince@protonmail.com)  
 **➣ Friends :  I Don't Have,Iam Just a Alone Guy✨🥀**   
 **➣ Age : Age is Just a Number, Don't Judge a People by Age**  
