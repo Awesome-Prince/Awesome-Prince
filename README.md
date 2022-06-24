@@ -5,7 +5,7 @@
 
  **About Me:-**
 
-**➣ I’m Currently Working With [@Koyūki_Network](https://t.me/Koyuki_Network) And I Proud Of It**  
+**➣ I’m Currently Working Alone**  
 **➣ I’m Currently Working On My Game Project**  
 **➣ I’m Looking For A Best Friend Who Helpes Me On My Work**      
 **➣ I'm Currently Concentrating My Studies, My Bot Stuffs And Etc**        
