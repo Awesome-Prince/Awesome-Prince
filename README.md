@@ -1,4 +1,4 @@
-![Awesome-Prince](https://telegra.ph/file/3e76debd2c40967efc9f4.jpg)
+![Awesome-Prince](https://telegra.ph/file/ad741388f5c4fab885127.jpg)
 # What's Up! ✨🥀, Awesome-Prince
 
 <b>Hoi, I'm LovelyPrince, A Noob Telegram Bot Developer And A Game Developer 💻 from India-TamilNadu 🇮🇳
