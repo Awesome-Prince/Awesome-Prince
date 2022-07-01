@@ -13,3 +13,24 @@
   ➣ Contact Me : DarlingPrince@protonmail.com  
 **➣ Friends :  I Don't Have,Iam Just a Alone Guy✨🥀**   
 **➣ Age : Age is Just a Number, Don't Judge a People by Age**  
+
+
+##Persnol info.
+```python
+class Awesome-Prince():
+    def __init__(self):
+        self.name = ['Lovely prince']
+        self.country = ['India']
+        self.language = ['Tamil', 'English', 'Japanese']
+    def programming_languages(self):
+        return [
+            'Python', 'html', 'JavaScript', 'CSS', 'C+', 'C++', 'Java'
+        ]
+    def developer_tools(self):
+        return [
+            'GitHub', 'Stack Overflow', 'Docker','Heroku', 'Railway', 'Digital Ocean'
+            'MongoDB', 'Termux', 'Visual Code'
+        ]
+    def operating_system(self):
+        return [
+            'Windows', 'Android'
