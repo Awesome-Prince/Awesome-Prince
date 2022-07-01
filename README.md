@@ -15,7 +15,7 @@
 **➣ Age : Age is Just a Number, Don't Judge a People by Age**  
 
 
-##Persnol info.
+## Persnol info.
 ```python
 class Awesome-Prince():
     def __init__(self):
