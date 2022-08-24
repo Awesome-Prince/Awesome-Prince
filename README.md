@@ -11,7 +11,7 @@
 **➛ I'm Currently Concentrating My Studies, My Bot Stuffs And Etc**        
 **➛ You Can Use My Inbox As Your Help Desk**  
   ➛ Contact Me : DarlingPrince@protonmail.com  
-**➛ Friends :  I Don't Have,Iam Just a Alone Guy✨🥀**   
+**➛ Friends :  I Don't Have, Iam Just a Alone Guy✨🥀**   
 **➛ Age : Just 16 Years Kiddo**  
 
 
