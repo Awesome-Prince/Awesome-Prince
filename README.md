@@ -1,7 +1,7 @@
 ![Awesome-Prince](https://telegra.ph/file/ad741388f5c4fab885127.jpg)
-# What's Up! ✨🥀,
+# Hi there 👋, I'm 🖤「 𝐋𝐨𝐯𝐞𝐥𝐲𝐏𝐫𝐢𝐧𝐜𝐞™ 」🖤 °•♡왕자♡•°
 
-<b>Hola Hola, I'm LovelyPrince, A Noob Telegram Bot Developer And A Game Developer 💻 From India-TamilNadu 🇮🇳
+Hola Hola, I'm LovelyPrince, A Game Developer 🚀, Telegram Bot Developer From India.
 
  **About Me:-**
 
