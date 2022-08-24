@@ -1,18 +1,18 @@
 ![Awesome-Prince](https://telegra.ph/file/ad741388f5c4fab885127.jpg)
-# What's Up! ✨🥀, Awesome-Prince
+# What's Up! ✨🥀,
 
-<b>Hoi, I'm LovelyPrince, A Noob Telegram Bot Developer And A Game Developer 💻 from India-TamilNadu 🇮🇳
+<b>Hola Hola, I'm LovelyPrince, A Noob Telegram Bot Developer And A Game Developer 💻 From India-TamilNadu 🇮🇳
 
  **About Me:-**
 
-**➣ I’m Currently Working Alone**  
-**➣ I’m Currently Working On My Game Project**  
-**➣ I’m Looking For A Best Friend Who Helpes Me On My Work**      
-**➣ I'm Currently Concentrating My Studies, My Bot Stuffs And Etc**        
-**➣ You Can Use My Inbox As Your Help Desk**  
-  ➣ Contact Me : DarlingPrince@protonmail.com  
-**➣ Friends :  I Don't Have,Iam Just a Alone Guy✨🥀**   
-**➣ Age : Age is Just a Number, Don't Judge a People by Age**  
+**➛ I’m Currently Working Alone**  
+**➛ I’m Currently Working On My Game Project**  
+**➛ I’m Looking For A Best Friend Who Helpes Me On My Work**      
+**➛ I'm Currently Concentrating My Studies, My Bot Stuffs And Etc**        
+**➛ You Can Use My Inbox As Your Help Desk**  
+**➛ Contact Me : DarlingPrince@protonmail.com**
+**➛ Friends :  I Don't Have,Iam Just a Alone Guy✨🥀**   
+**➛ Age : Just 16 Years Kiddo**  
 
 
 ## Persnol info.
