@@ -1,6 +1,6 @@
 
 
-![Awesome-Prince](https://telegra.ph/file/ed1fdf8308a9976975441.gif)
+![Awesome-Prince](https://user-images.githubusercontent.com/90893568/189415055-81404ad2-1bae-44f7-a7a6-2fbeb7b714d8.gif)
 # Hi there 👋, I'm 🖤「 𝐋𝐨𝐯𝐞𝐥𝐲𝐏𝐫𝐢𝐧𝐜𝐞™ 」🖤 °•♡왕자♡•°
 
 <b>Hola Hola, I'm LovelyPrince, A Noob Telegram Bot Developer And A Game Developer 💻 From India-TamilNadu 🇮🇳</b>
