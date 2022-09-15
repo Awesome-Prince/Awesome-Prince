@@ -1,6 +1,6 @@
 
 
-![Awesome-Prince](https://telegra.ph/file/5a4353b6c2f8594c178c6.jpg)
+![Awesome-Prince](https://telegra.ph/file/ab0a509f39e5d206e3ed4.jpg)
 # Hi there 👋, I'm「 𝐋𝐨𝐯𝐞𝐥𝐲𝐏𝐫𝐢𝐧𝐜𝐞™ 」
 
 <b>Hola Hola, I'm LovelyPrince, A Noob Telegram Bot Developer And A Game Developer 💻 From India-TamilNadu 🇮🇳</b>
@@ -16,7 +16,6 @@
 **➛ Friends :  I Don't Have, Iam Just a Alone Guy✨🥀**   
 **➛ Age : Just 16 Years Kiddo**  
 
-![LoveCoding](https://telegra.ph/file/37bbde7849b015716468e.jpg)
 
 ## Persnol info.
 ```python
