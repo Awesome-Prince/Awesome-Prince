@@ -29,7 +29,9 @@ From Internet World 🌐</b>
 ![Lines of code](https://img.shields.io/badge/From%20Hello%20World%20I%27ve%20Written-1%20Million%20lines%20of%20code-blue)
 
 ##  🎶 **Currently Playing**
-[![Spotify](https://spotify.LovelyPrince™.me/api/spotify)](https://open.spotify.com/user/21dlpp4ul43o6wj7x7pdmzzeq)
+[![Spotify](https://img.shields.io/badge/-Spotify-%232c3e50?style=flat-square&logo=spotify)](https://spotify.com)
+[![Resso](https://img.shields.io/badge/-Resso-%23007ACC?style=flat-square&logo=resso)](https://resso.com)
+
 
 ## Languages
 
