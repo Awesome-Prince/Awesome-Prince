@@ -21,6 +21,13 @@ From Internet World 🌐</b>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=Awesome-Prince&label=Profile%20views&color=0e75b6&style=flat" alt="Awesome-Prince" /> </p>
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Awesome-Prince" alt="Awesome-Prince" /></a> </p>
 
+## **Coding Time & Lines Of Codes**
+
+<!--START_SECTION:waka-->
+![Code Time](http://img.shields.io/badge/Code%20Time-847%23hrs%207%20mins-blue)
+
+![Lines of code](https://img.shields.io/badge/From%20Hello%20World%20I%27ve%20Written-1%20Million%20lines%20of%20code-blue)
+
 
 ## Languages
 
