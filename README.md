@@ -8,13 +8,11 @@ From Internet World 🌐</b>
 
  **About Me:-**
 
-**➛ I’m Currently Working Alone**  
-**➛ I’m Currently Working On My Game Project**  
+**➛ I’m Currently Working Alone**
 **➛ I’m Looking For A Best Friend Who Helpes Me On My Work**      
-**➛ I'm Currently Concentrating My Studies, My Bot Stuffs And Etc**        
+**➛ I'm Currently Concentrating My Studies**        
 **➛ You Can Use My Inbox As Your Help Desk**  
-  ➛ Contact Me : DarlingPrince@protonmail.com  
-**➛ Friends :  I Don't Have, Iam Just a Alone Guy✨🥀**   
+  ➛ Contact Me : DarlingPrince@protonmail.com   
 **➛ Age : Just 16 Years Kiddo**  
 
 ## Awards
