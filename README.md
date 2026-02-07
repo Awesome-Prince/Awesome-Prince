@@ -3,7 +3,7 @@
 ![Awesome-Prince](https://te.legra.ph/file/e9295af3c50fcbd67f411.png)
 # Hi there 👋, I'm「 𝐋𝐨𝐯𝐞𝐥𝐲𝐏𝐫𝐢𝐧𝐜𝐞™ 」
 
-<b>Hola Hola, I'm LovelyPrince, A Game Developer 💻;
+<b>Hola Hola, I'm LovelyPrince, A Developer 💻;
 From Internet World 🌐</b>
 
  **About Me:-**
@@ -13,7 +13,7 @@ From Internet World 🌐</b>
 **➛ I'm Currently Concentrating My Studies**        
 **➛ You Can Use My Inbox As Your Help Desk**  
   ➛ Contact Me : DarlingPrince@protonmail.com   
-**➛ Age : Just 16 Years Kiddo**  
+**➛ Age : Just 17 Years Kiddo**  
 
 ## Awards
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=Awesome-Prince&label=Profile%20views&color=0e75b6&style=flat" alt="Awesome-Prince" /> </p>
