@@ -1,6 +1,6 @@
 
 
-![Awesome-Prince](https://te.legra.ph/file/e9295af3c50fcbd67f411.png)
+![Awesome-Prince]()
 # Hi there 👋, I'm「 𝐋𝐨𝐯𝐞𝐥𝐲𝐏𝐫𝐢𝐧𝐜𝐞™ 」
 
 <b>Hola Hola, I'm LovelyPrince, A Developer 💻;
